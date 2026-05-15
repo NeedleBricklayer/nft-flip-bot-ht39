@@ -1,4 +1,4 @@
-# 
+# rare NFT Sniper for nft flip bot | price-impact-analysis & mint-detection is the best nft flip bot, featuring price-impact-analysis and mint-detection. Fast, smart, and optimized
 
 
 
